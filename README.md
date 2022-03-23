@@ -20,7 +20,7 @@ to me and i wont release till  i know
 me and who ever is partner  
 have some type of communication
  
-the app 1 for the people that owes debts and need to pay them i would like to get pay $1 for every user that use the app to pay debt 
+the app 1 for the people that owes debts and need to pay them i would like to get pay $1 per month for every user that use the app to pay debt 
 2 for the companies that use the app  to collet their 
 debts i want to get pay a 2.5% for them collecting their money  thru  the  debt KillerApp app  on every transaction wen a debtor
 pays money to them
